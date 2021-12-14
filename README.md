@@ -1,0 +1,2 @@
+# pubg
+Win mythic seats
